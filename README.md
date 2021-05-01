@@ -1,2 +1,3 @@
-![final_605a1ef57b0ef10060363178_671055 (3)](https://user-images.githubusercontent.com/65312637/116789520-462e3780-aa7d-11eb-8761-e97dc7e3aad9.gif)
+![tuxxego-Thumbnail](https://user-images.githubusercontent.com/65312637/116789558-6827ba00-aa7d-11eb-8c3a-e0e6193f88c4.png)
+
 
